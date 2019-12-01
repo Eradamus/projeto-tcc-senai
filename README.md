@@ -12,6 +12,7 @@ Turma: **Técnico em Eletroeletrônica (Jan/2019 a Dez/2020, Turno Vespertino)**
 
 Nome: **Thiago Henrique Assi**
 - Email: **thiago-assi@outlook.com**
+- Perfil no [Facebook](http://facebook.com/thiago.assi.168/)
 
 Nome: **Michell Christofferson**
 - Email: **michellcuchulainn@gmail.com**
