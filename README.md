@@ -17,5 +17,5 @@ Nome: **Michell Christofferson**
 - Email: **michellcuchulainn@gmail.com**
 <br>
 
-Início em 28/11/2019 | Em Andamento!  
+Início em 01/12/2019 | Em Andamento!  
 Término previsto para Dez/2020
